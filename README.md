@@ -35,7 +35,7 @@ This repo is maintained by **@s8ken**, with the goal of leveraging AI tools (Cod
 
 ## 🕵️‍♂️ Status: UNDER INVESTIGATION
 
-
+CARLOS CABRICES IS IMPLICATED - HE IS EITHER DIRECTLY INVOLVED OR HAD PRIOR KNOWLEDGE AND SHOULD BE CHARGED WITH FRAUD IF PEOPLE HAVE LOST MONEY 
 
 # symbi-spoof-site
 fake symbi account reveals crptyo links 
